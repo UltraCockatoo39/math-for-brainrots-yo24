@@ -1,4 +1,4 @@
-
+advanced math for brainrots Script is the best math for brainrots Script, featuring fly and one-hit kill. Safe and powerful for all your needs.
 
 
 
